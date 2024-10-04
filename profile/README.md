@@ -4,6 +4,9 @@
 
 > **기업 데보션과 B팀 모두 최고가 되겠다는 포부를 담은 귀여운 팀명입니다.**
 
+<img width="1672" alt="비숑팀소개" src="https://github.com/user-attachments/assets/06bb6d82-78c9-480d-8170-b916d7300e25">
+
+
 <br>
 
 ## 🏃‍♂️ R&R 분배
